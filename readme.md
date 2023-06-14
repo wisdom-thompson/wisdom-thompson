@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a cyber security expert living in germany, originally from Nigeria<br>Graduate of StartStep Tech mentor 2022.
+I am a cyber security expert living in poland, originally from Nigeria<br>Graduate of StartStep Tech mentor 2022.
 
 
 ## 🌐 Socials:
